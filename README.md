@@ -35,5 +35,13 @@ I create dynamic and engaging content on trending topics and historical events, 
 
 I create timely and engaging content covering the latest news and trending hot topics. With a sharp eye for current events and expert editing skills, I deliver up-to-date stories that inform and captivate my audience using **Davinci Resolve, Capcut**.DaVinci Resolve gives me pro-level editing with advanced color grading and VFX, perfect for cinematic projects. CapCut is fast, simple, and ideal for quick edits with creative effects. Together, they offer the perfect balance for both professional and on-the-go content creation.
 
+[Upwork](https://www.upwork.com/freelancers/~01e893eb44de9dcb86)
+
+As an expert in scriptwriting and visual editing, I specialize in crafting compelling narratives and creating visually captivating content that resonates with audiences. I combine meticulous scriptwriting with advanced video and image editing techniques to bring your ideas to life, ensuring every project is engaging and professionally polished. From developing captivating scripts to delivering high-quality, edited visuals, my goal is to transform your vision into powerful content that stands out and leaves a lasting impact. Whether you need dynamic promotional videos, immersive storytelling, or stunning visuals, I offer a comprehensive approach to content creation that elevates your message and achieves your goals.
+
+[Fiverr](https://www.fiverr.com/christianram828?up_rollout=true)
+
+As a skilled scriptwriter and visual editor, I excel at crafting engaging narratives and producing visually stunning content that captures and resonates with audiences. By merging precise scriptwriting with advanced editing techniques, I bring your ideas to life with professional polish and impact. My expertise spans from creating compelling scripts to delivering high-quality, edited visuals, aiming to turn your vision into standout content. Whether you need dynamic promotional videos, immersive storytelling, or eye-catching visuals, I provide a holistic approach to content creation that elevates your message and meets your objectives.
+
 ## About me
 I'm a passionate content creator who loves playing guitar and exploring the mysteries of extraterrestrial documentaries. My small YouTube channel is where I channel my creativity, blending engaging content on trending news, historical events, and intriguing stories. With a focus on high-quality editing and captivating storytelling, I strive to entertain and inform my audience. Whether I’m crafting a new video or diving into a fascinating documentary, I’m driven by curiosity and a love for sharing unique perspectives

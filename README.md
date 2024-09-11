@@ -25,8 +25,8 @@
 - Evaluate clients' credit reports and assess risk levels to recommend the best credit solutions
 - Advise clients on strategies to improve credit scores and manage debt effectively.
 
-## Projects
 
+## Projects
 ### Video Editing
 
 [YouTube](https://www.youtube.com/@RepublikangpinasTV)

@@ -27,6 +27,7 @@
 - 
 ## Projects
 ### Video Editing
+
 [YouTube](https://www.youtube.com/@RepublikangpinasTV)
 
 I create dynamic and engaging content on trending topics and historical events, blending storytelling with advanced editing techniques. My videos capture attention, spark curiosity, and offer a fresh perspective on both current and historical narratives using **Davinci Resolve, Capcut**.DaVinci Resolve gives me pro-level editing with advanced color grading and VFX, perfect for cinematic projects. CapCut is fast, simple, and ideal for quick edits with creative effects. Together, they offer the perfect balance for both professional and on-the-go content creation.

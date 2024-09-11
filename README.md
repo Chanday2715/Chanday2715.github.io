@@ -3,7 +3,7 @@
 ## Projects
 ### Project 1
 - Description
-- {YouTube} (https://www.youtube.com/@SavvyAcademia)
+- [YouTube](https://www.youtube.com/@SavvyAcademia)
 
 ### Project 2
 - Description

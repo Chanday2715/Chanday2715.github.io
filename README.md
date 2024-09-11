@@ -3,7 +3,8 @@
 #### Technical Skills: Risk Assessment & Underwriting,Claims Processing & Management, System Configuration & Maintenance,Credit Risk Analysis, CSR
 
 ## Education
--Bachelor of Science in Information Technology | College for Research and Technology in Cabanatuan, Nueva Ecija (_December 2015_)								       		
+-Bachelor of Science in Information Technology | College for Research and Technology in Cabanatuan, Nueva Ecija (_December 2015_)			
+
 -Caanawan High School	|San Jose City Nueva Ecija (_Year 2012_)
 
 ## Work Experience

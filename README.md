@@ -1,7 +1,7 @@
 # Chanday2715.github.io
 
 ## Projects
-###Project 1
+### Project 1
 - Description
 - Links
 

@@ -24,6 +24,8 @@
 **Credit Advisor @ HC Consumer Finance Philippines (_2018 - 2022_)**
 - Evaluate clients' credit reports and assess risk levels to recommend the best credit solutions
 - Advise clients on strategies to improve credit scores and manage debt effectively.
+
+
 ## Projects
 ### Video Editing
 

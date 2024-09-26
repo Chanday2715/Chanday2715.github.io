@@ -5,7 +5,7 @@
 ## Education
 -Bachelor of Science in Information Technology | College for Research and Technology in Cabanatuan, Nueva Ecija (_December 2015_)			
 
--Caanawan High School	|San Jose City Nueva Ecija (_Year 2012_)
+-Caanawan High School	|San Jose City Nueva Ecija (_April 11 2011_)
 
 ## Work Experience
 **Insurance Specialist @ Afni Philippines (_2023 - Present_)**
